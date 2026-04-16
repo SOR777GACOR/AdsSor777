@@ -1,2 +1,2 @@
 # AdsSor777
-Landing Page Sor77
+Landing Page Sor777
